@@ -1,1 +1,1 @@
-# infidigital-2
+# infodigital-2
